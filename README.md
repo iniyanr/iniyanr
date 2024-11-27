@@ -1,6 +1,6 @@
 # 💫 **About Me:**  
 Hey there, I'm **Iniyan**! 👋  
-🛡️ A passionate **Cybersecurity Enthusiast** 
+🛡️ A passionate **Cybersecurity Enthusiast** |
 Constantly seeking new challenges to learn and grow in the tech world.
 
 ## 🌐 Socials:
